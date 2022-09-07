@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Datatang-MKT
-- 👀 I’m interested in helping people find us on time 
+- 👀 I’m interested in helping people find us on the right time
 - 🌱 I’m currently learning to boost our sales performace 
 - 📫 You can contact us info@datatang.com
 
