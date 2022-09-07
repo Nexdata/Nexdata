@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Datatang-MKT
 - 👀 I’m interested in helping people find us on the right time
-- 🌱 I’m currently learning to boost our sales performace 
+- 🌱 I’m currently learning to adopt market tread to our marketing strategy 
 - 📫 You can contact us info@datatang.com
 
 <!---
